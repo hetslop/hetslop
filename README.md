@@ -17,7 +17,7 @@ dni:
 - pedophilia / rape / incest culture or proship. if i figure out youre proship / darkship / comship or whatever related to that, ill block you im sorry
 - pro paraphilia / pro contact / radqueer, i dont even have to explain
 - dni terfs, transmed, radfem, endos, anti-recovery, antisemites, orientalists, fakeclaimers, harmful labels. but if you're a "lesboy" , objectum , or something similar, i don't care — i think sexuality is meaningless and you don't need to police how people use certain labels 
-- i do not care who am i interacting to, if you have 1000 exes or have a flaw, idgaf as long as you are not listed into any of these above
+- i do not care who am i interacting to, if you have 1000 exes or have tax evasion , idgaf as long as you are not listed into any of these above
 
 > anyways check out my art
 
