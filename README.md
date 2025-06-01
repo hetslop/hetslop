@@ -6,9 +6,13 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
 ![alt text](https://files.catbox.moe/h9epxr.png)
 
-![Elements](https://files.catbox.moe/hz8wtr.gif){: style="height:83px"}
-![Dandi](https://files.catbox.moe/cujlfa.png){: style="height:83px"}
+<div class="grid" markdown>
 
+![Image title](https://files.catbox.moe/hz8wtr.gif)
+
+![Image title](https://files.catbox.moe/cujlfa.png)
+
+</div>
 art above credit goes to my mom https://milkiiwayz.carrd.co/
 
 info:
