@@ -9,11 +9,10 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
 art above credit goes to my mom https://milkiiwayz.carrd.co/
 
-<div>
-  <img style="vertical-align:middle" src="https://files.catbox.moe/hz8wtr.gif">
-  <span style="">
-    all my socials are private, and so is my personal life. you may ask for one, but i will ask for your age first, as none of them are sfw. you must be of legal age — please understand!</span>
-</div>
+<img src="https://files.catbox.moe/hz8wtr.gif">
+
+info:
+- all my socials are private, and so is my personal life. you may ask for one, but i will ask for your age first, as none of them are sfw. you must be of legal age — please understand!
 
 byf:
 - i have bipolar + cptsd and im very insufferable to talk with because i will literally say "huh" and ask you to elaborate many times
