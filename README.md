@@ -8,9 +8,7 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
 <div class="grid" markdown>
 
-![Image title](https://files.catbox.moe/hz8wtr.gif)
-
-![Image title](https://files.catbox.moe/cujlfa.png)
+![Image title](https://files.catbox.moe/hz8wtr.gif) ![Image title](https://files.catbox.moe/cujlfa.png)
 
 </div>
 art above credit goes to my mom https://milkiiwayz.carrd.co/
