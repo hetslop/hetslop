@@ -6,6 +6,7 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
 ![alt text](https://files.catbox.moe/h9epxr.png)
 
+<img src="https://files.catbox.moe/hz8wtr.gif" width="200"/> <img src="https://files.catbox.moe/cujlfa.png" width="300"/>
 
 </div>
 art above credit goes to my mom https://milkiiwayz.carrd.co/
