@@ -6,6 +6,8 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
 ![alt text](https://files.catbox.moe/h9epxr.png)
 
+![alt text](https://files.catbox.moe/hz8wtr.gif)
+
 info:
 - all my socials are private, and so is my personal life. you may ask for one, but i will ask for your age first, as none of them are sfw. you must be of legal age — please understand!
 
