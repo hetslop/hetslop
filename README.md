@@ -15,7 +15,7 @@ info:
 
 byf:
 - i have bipolar + cptsd and im very insufferable to talk with because i will literally say "huh" and ask you to elaborate many times
-- i know this might sound like a lot, but please dont talk to me in a suggestive or freaky if youre under 17. im an adult, and i just need you to be mindful of your space and mine
+- i know this might sound like a lot, but please dont talk to me in a suggestive or freaky if youre under 17. im an adult, and i just need you to be mindful of your space and mine ( i am freshly 18 to be exact )
 
 dni:
 - basic dni criteria
