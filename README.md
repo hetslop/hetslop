@@ -15,7 +15,7 @@ info:
 
 byf:
 - i have bipolar + cptsd and im very insufferable to talk with because i will literally say "huh" and ask you to elaborate many times
-- i will only interact okegom fans if youre not sal/idate/satanick supporter. i only like the women characters btw
+- i will only interact okegom fans if youre not sal/idate/satanick/ivlis supporter. you can like the character but not their actions. i only like the women characters btw
 
 dni:
 - basic dni criteria
