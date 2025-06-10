@@ -15,7 +15,7 @@ info:
 
 byf:
 - i have bipolar + cptsd and im very insufferable to talk with because i will literally say "huh" and ask you to elaborate many times
-- "what is a gaybian what is a lesboy" bro who cares all these republicans want us all eradicated anyways!! 
+- i will only interact okegom fans if youre not sal/idate/satanick supporter. i only like the women characters btw
 
 dni:
 - basic dni criteria
