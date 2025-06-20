@@ -14,7 +14,7 @@ info:
 - all my socials are private, and so is my personal life. you may ask for one, but i will ask for your age first, as none of them are sfw. you must be of legal age — please understand!
 
 byf:
-- i have bipolar
+- i have bipolar and pretty much insufferable to talk with
 - conduct disorder + sud diagnosed as a teen which is really important information!! if ur stranger and uncomfortable with that, i am fud (free to block)
 
 dni:
