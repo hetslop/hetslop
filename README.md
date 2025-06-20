@@ -15,7 +15,7 @@ info:
 
 byf:
 - i have bipolar and pretty much insufferable to talk with
-- conduct disorder + sud diagnosed as a teen which is really important information!! if ur uncomfortable with that, i am fub free (free to unfollow, block) if u didn't like how i behave, just unfollow or block as simple as that
+- odd + sud diagnosed as a teen 
 
 dni:
 - basic dni criteria
