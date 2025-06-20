@@ -15,7 +15,7 @@ info:
 
 byf:
 - i have bipolar and pretty much insufferable to talk with
-- odd + sud diagnosed as a teen 
+- cd + sud diagnosed as a teen 
 
 dni:
 - basic dni criteria
