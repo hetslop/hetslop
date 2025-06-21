@@ -14,7 +14,8 @@ info:
 - all my socials are private, and so is my personal life. you may ask for one, but i will ask for your age first, as none of them are sfw. you must be of legal age — please understand!
 
 byf:
-- i have bipolar + cptsd and pretty much insufferable to talk with
+- i have bipolar and pretty much insufferable to talk with
+- i am physically disabled, please do not call me the hard r im tired of it thank you :'
 
 dni:
 - basic dni criteria
