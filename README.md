@@ -15,7 +15,7 @@ info:
 
 byf:
 - i have bipolar and pretty much insufferable to talk with
-- i am physically disabled, please do not call me the hard r im tired of it thank you :'
+- absolutely dni PROSHIP STOP INTERACTUNG W ME ITS THE 4TH TIME I BEFRIENDED AND THEN BLOCKED BECAUSE I FOUND OUT THEY R PROSHITTER
 
 dni:
 - basic dni criteria
