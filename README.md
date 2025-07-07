@@ -14,7 +14,7 @@ info:
 - all my socials are private, and so is my personal life. you may ask for one, but i will ask for your age first, as none of them are sfw. you must be of legal age — please understand!
 
 byf:
-- i have bipolar and narcicism , pretty much insufferable to talk with
+- i have bipolar and narcicism ( being suspected to have npd ) , pretty much insufferable to talk with
 
 dni:
 - basic dni criteria
