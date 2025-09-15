@@ -11,7 +11,7 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 art above credit goes to my mom https://milkiiwayz.carrd.co/
 
 info:
-- all my socials are private, and so is my personal life. you may ask for one, but i will ask for your age first, as none of them are sfw. you must be of legal age — please understand!
+- all my socials are private, and so is my personal life. you may ask for one, but i will ask for your age first, as none of them are sfw. you must be of legal age — please understand! (im 18)
 
 dni:
 - basic dni criteria
