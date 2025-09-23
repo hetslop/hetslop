@@ -14,12 +14,9 @@ info:
 - all my socials are private, and so is my personal life. you may ask for one, but i will ask for your age first, as none of them are sfw. you must be of legal age — please understand! (im 18)
 
 dni:
-- basic dni criteria
-- pedophilia / rape / incest culture or proship. if i figure out youre proship / darkship / comship or whatever related to that, ill block you im sorry
-- pro paraphilia / pro contact / radqueer, i dont even have to explain
-- dni terfs, transmed, radfem, endos, anti-recovery, antisemites, orientalists, fakeclaimers, harmful labels. but if you're a "lesboy" , objectum , or something similar, i don't care — i think sexuality is meaningless and you don't need to police how people use certain labels
-- sal/idate/satanick/ivlis supporter. okegom is only good if people start focusing on the women characters than the men im tired of people drooling over a RAPIST
-- i do not care who am i interacting to, if you have 1000 exes or have tax evasion , idgaf as long as you are not listed into any of these above
+- idk have common sense
+- proship darkship comship uhhh dni
+- also im pro queer so if u wanna be friends with me please be mindful i will protect my lesboy n gaybian friends at all cost so dni if you hate mspec sexualities? ok.
 
 > anyways check out my art
 
