@@ -17,6 +17,7 @@ dni:
 - idk have common sense
 - proship darkship comship uhhh dni
 - also im pro queer so if u wanna be friends with me please be mindful i will protect my lesboy n gaybian friends at all cost so dni if you hate mspec sexualities? ok. radqueer strict dni tho
+- while i am an adult i am kinda scared of authoritative adults (teacher, etc, above 21+) so pleasee interact with caution if youre one
 
 > anyways check out my art
 
