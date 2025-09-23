@@ -16,7 +16,7 @@ info:
 dni:
 - idk have common sense
 - proship darkship comship uhhh dni
-- also im pro queer so if u wanna be friends with me please be mindful i will protect my lesboy n gaybian friends at all cost so dni if you hate mspec sexualities? ok.
+- also im pro queer so if u wanna be friends with me please be mindful i will protect my lesboy n gaybian friends at all cost so dni if you hate mspec sexualities? ok. radqueer strict dni tho
 
 > anyways check out my art
 
