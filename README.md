@@ -15,7 +15,7 @@ info:
 
 dni:
 - idk have common sense
-- proship darkship comship uhhh dni
+- proship darkship comship uhhh dni i believe all coping mechanism are valid but i will still call u a weirdo no matter how sweet you are . im hard-core anti
 - also im pro queer so if u wanna be friends with me please be mindful i will protect my lesboy n gaybian friends at all cost so dni if you hate mspec sexualities? ok. radqueer strict dni tho
 - while i am an adult i am kinda scared of authoritative adults (teacher, etc, above 21+) so pleasee interact with caution if youre one
 
