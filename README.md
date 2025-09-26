@@ -1,29 +1,54 @@
-please check out these sources!
+<div align="center">
+  <a href="https://rentry.co/charitylinks">
+    <strong>please check out these sources!</strong>
+  </a>
+</div>
 
-https://rentry.co/charitylinks
+&nbsp;
 
-MY MOTHER MISTREATS ME (CANON NOT FAKE)
+# MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
-![alt text](https://files.catbox.moe/h9epxr.png)
+<p align="center">
+  <img src="https://files.catbox.moe/h9epxr.png" alt="Artwork of a character" width="600">
+  <br>
+  <img src="https://files.catbox.moe/tb2z0s.gif" alt="Animated character GIF">
+</p>
 
-<img src="https://files.catbox.moe/tb2z0s.gif" align="center">
+<p align="center">
+  <i>art above credit goes to my mom → <a href="https://milkiiwayz.carrd.co/">milkiiwayz.carrd.co</a></i>
+</p>
 
-art above credit goes to my mom https://milkiiwayz.carrd.co/
+---
 
-info:
-- all my socials are private, and so is my personal life. you may ask for one, but i will ask for your age first, as none of them are sfw. you must be of legal age — please understand! (im 18)
+## ✦ Info
+- All my socials are private, and so is my personal life. You may ask for one, but I will ask for your age first, as none of them are SFW. You must be of legal age — please understand! (I'm 18)
 
-dni:
+## ✦ DNI (Do Not Interact)
 - idk have common sense
-- proship darkship comship uhhh dni i believe all coping mechanism are valid but i will still call u a weirdo no matter how sweet you are . im anti protree because u guys lowkey weird
-- also im pro queer so if u wanna be friends with me please be mindful i will protect my lesboy n gaybian friends at all cost so dni if you hate mspec sexualities? ok. radqueer strict dni tho
-- i may be a pro queer im scared of whites queer so thin ice if youre pro queer.,....and white...sorrym...
+- **proship darkship comship** uhhh dni. I believe all coping mechanisms are valid but I will still call u a weirdo no matter how sweet you are. I'm anti protree because u guys lowkey weird.
+- Also I'm **pro queer** so if u wanna be friends with me please be mindful I will protect my lesboy n gaybian friends at all cost so dni if you hate mspec sexualities? ok. radqueer strict dni tho.
+- I may be a pro queer I'm scared of whites queer so thin ice if you're pro queer... and white... sorrym...
+
+---
 
 > anyways check out my art
 
-![alt text](https://files.catbox.moe/p3im38.png)
-![alt text](https://files.catbox.moe/vr9dso.png)
-![alt text](https://files.catbox.moe/asbvdz.png)
-![alt text](https://files.catbox.moe/n75jco.png)
-#### still a wip I'm just posting recent sketches i have n then remove it when i finished
-![Alt text](https://files.catbox.moe/tk03h5.jpg)
+<table>
+  <tr>
+    <td align="center"><img src="https://files.catbox.moe/p3im38.png" width="100%"></td>
+    <td align="center"><img src="https://files.catbox.moe/vr9dso.png" width="100%"></td>
+  </tr>
+  <tr>
+    <td align="center"><img src="https://files.catbox.moe/asbvdz.png" width="100%"></td>
+    <td align="center"><img src="https://files.catbox.moe/n75jco.png" width="100%"></td>
+  </tr>
+  <tr>
+    <td colspan="2" align="center">
+      <img src="https://files.catbox.moe/tk03h5.jpg" width="80%">
+    </td>
+  </tr>
+</table>
+
+<h4 align="center">still a wip I'm just posting recent sketches i have n then remove it when i finished</h4>        }
+
+        .            
