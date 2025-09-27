@@ -4,8 +4,8 @@
   </a>
 </div>&nbsp;
 
-and also this, i am asian but i believe pt people should stop appropriating aave
-https://mangolanguages.com/resources/learn/general/language-culture/african-american-vernacular-english-what-is-it-where-does-it-come-from-and-why-is-it-important
+and also this, i am asean but i believe pt people should stop appropriating aave
+<a href="https://mangolanguages.com/resources/learn/general/language-culture/african-american-vernacular-english-what-is-it-where-does-it-come-from-and-why-is-it-important">aave linguistics</a></i>
 
 &nbsp;
 
