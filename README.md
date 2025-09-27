@@ -4,7 +4,7 @@
   </a>
 </div>&nbsp;
 
-and also this, i am asean but i believe pt people should stop appropriating aave
+and also this, i am asean but i believe pt people should stop appropriating aave (if ive used one please dont hesitate to call me out)
 <a href="https://mangolanguages.com/resources/learn/general/language-culture/african-american-vernacular-english-what-is-it-where-does-it-come-from-and-why-is-it-important">aave linguistics</a></i>
 
 
