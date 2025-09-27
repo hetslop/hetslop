@@ -27,7 +27,7 @@ and also this, i am asean but i believe pt people should stop appropriating aave
 
 ## ✦ DNI (Do Not Interact)
 - idk have common sense
-- **proship darkship comship** uhhh dni. I believe all coping mechanisms are valid but I will still call u a weirdo no matter how sweet you are. I'm anti protree because u guys lowkey weird.
+- **proship darkship comship** uhhh dni. I believe all coping mechanisms are valid but I will still call u a weirdo no matter how sweet you are. I'm anti protree because u guys weirdoss.
 - Also I'm **pro queer** so if u wanna be friends with me please be mindful I will protect my lesboy n gaybian friends at all cost so dni if you hate mspec sexualities? ok. radqueer strict dni tho.
 - I may be a pro queer I'm scared of whites queer so thin ice if you're pro queer... and white... sorrym...
 
