@@ -1,8 +1,11 @@
 <div align="center">
   <a href="https://rentry.co/charitylinks">
-    <strong>please check out these sources!</strong>
+    <strong>please check out these sources!</strong> (i am still updating this) 
   </a>
 </div>
+
+and also this, i am asian but i believe pt people should stop appropriating aave
+https://mangolanguages.com/resources/learn/general/language-culture/african-american-vernacular-english-what-is-it-where-does-it-come-from-and-why-is-it-important
 
 &nbsp;
 
