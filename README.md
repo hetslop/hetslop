@@ -30,7 +30,7 @@ and also this, i am asean but i believe pt people should stop appropriating aave
 - **proship darkship comship** uhhh dni. I believe all coping mechanisms are valid but I will still call u a weirdo no matter how sweet you are. I'm anti protree because u guys weirdoss.
 - Also I'm **pro queer** so if u wanna be friends with me please be mindful I will protect my lesboy n gaybian friends at all cost so dni if you hate mspec sexualities? ok. radqueer strict dni tho.
 - thin ice if ur uh below 16 !! however if youre one i will mostly be careful on interacting with you . i dont mind minor interacting with me ^^
-- fart
+- also this https://rentry.org/alaskanlynx
 ---
 
 > anyways check out my art
