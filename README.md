@@ -3,10 +3,11 @@
     <strong>please check out these sources!</strong> (i am still updating this) 
   </a>
 </div>&nbsp;
-
 and also this, i am asean but i believe pt people should stop appropriating aave (if ive used one please dont hesitate to call me out)
 <a href="https://mangolanguages.com/resources/learn/general/language-culture/african-american-vernacular-english-what-is-it-where-does-it-come-from-and-why-is-it-important">aave linguistics</a></i> and https://aaveinfo.carrd.co/
 
+<img src="https://files.catbox.moe/gmgctq.jpg" alt="Artwork of a character" width="600">
+ DONT COPY MY SKINS BROOOOOO
 
 # MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
