@@ -3,25 +3,8 @@
     <strong>please check out these sources!</strong> (i am still updating this) 
   </a>
 </div>&nbsp;
-and also this, i am asean but i believe pt people should stop appropriating aave (if ive used one please dont hesitate to call me out)
-<a href="https://mangolanguages.com/resources/learn/general/language-culture/african-american-vernacular-english-what-is-it-where-does-it-come-from-and-why-is-it-important">aave linguistics</a></i> and https://aaveinfo.carrd.co/
 
-<img src="https://files.catbox.moe/gmgctq.jpg" alt="Artwork of a character" width="600">
- DONT COPY MY SKINS BROOOOOO
-
-# MY MOTHER MISTREATS ME (CANON NOT FAKE)
-
-<p align="center">
-  <img src="https://files.catbox.moe/h9epxr.png" alt="Artwork of a character" width="600">
-  <br>
-  <img src="https://files.catbox.moe/tb2z0s.gif" alt="Animated character GIF">
-</p>
-
-<p align="center">
-  <i>art above credit goes to my mom → <a href="https://milkiiwayz.carrd.co/">milkiiwayz.carrd.co</a></i>
-</p>
-
----
+kill predators
 
 ## ✦ Info
 - All my socials are private, and so is my personal life. You may ask for one, but I will ask for your age first, as none of them are SFW. You must be of legal age — please understand! (I'm 18)
