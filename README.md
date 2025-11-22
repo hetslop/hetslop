@@ -4,7 +4,7 @@
   </a>
 </div>&nbsp;
 
-whatever that bitch deserves to be abused for being racist and using me as sex toy
+I like sleeping
 
 ## ✦ Info
 - All my socials are private, and so is my personal life. You may ask for one, but I will ask for your age first, as none of them are SFW. You must be of legal age — please understand! (I'm 18)
