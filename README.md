@@ -7,7 +7,6 @@
 he/him 18.
 normally hanging around docks. c+h always open
 w2i if you wanna be friends
-i like coding, baking, gaming, creative stuff, etc etc
 
 ## ✦ Info
 - All my socials are private, and so is my personal life. You may ask for one, but I will ask for your age first, as none of them are SFW. You must be of legal age — please understand! (I'm 18)
