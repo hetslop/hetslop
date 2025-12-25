@@ -16,7 +16,7 @@ w2i if you wanna be friends
 - **proship darkship comship** uhhh dni. I believe all coping mechanisms are valid but I will still call u a weirdo no matter how sweet you are. I'm anti protree because u guys weirdoss.
 - Also I'm **pro queer** so if u wanna be friends with me please be mindful I will protect my lesboy n gaybian friends at all cost so dni if you hate mspec sexualities? ok. radqueer strict dni tho.
 - thin ice if ur uh below 16 !! however if youre one i will mostly be careful on interacting with you . i dont mind minor interacting with me ^^
-- also this https://rentry.org/alaskanlynx
+- any ex friends or people name spiritual idk uhhh u guys kinda suck i kinda got hospitalised and all ur ass do is scratch ur ass and care for urself
 ---
 
 > anyways check out my art
