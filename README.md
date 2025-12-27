@@ -17,7 +17,7 @@ w2i if you wanna be friends
 - Also I'm **pro queer** so if u wanna be friends with me please be mindful I will protect my lesboy n gaybian friends at all cost so dni if you hate mspec sexualities? ok. radqueer strict dni tho.
 - thin ice if ur uh below 16 !! however if youre one i will mostly be careful on interacting with you . i dont mind minor interacting with me ^^
 - any ex friends or people name spiritual idk uhhh u guys kinda suck i kinda got hospitalised and all ur ass do is scratch ur ass and care for urself
-also u use me as a sex toy i hate u
+- also that guy use me as a sex toy i hate u
 ---
 
 > anyways check out my art
