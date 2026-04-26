@@ -8,4 +8,7 @@ ex friends dni, im not comfortable with having reunion with a groomer and people
 
 also stop bringing up about the regiment to me, im not comfortable with the regiment anymore especially considering in the past 2020 i was being placed in nsfw chat when I was 13 and the leader was an adult. i don't like adults who constantly vent to minors
 
+not to victimise myself but ive been treated unfairly as a teen being told by many adults i am lacking empathy + having mixed feelings because i have poor emotional regulation. but ohhh let me let a groomer in my friend group and not hold them accountable n saying its years ago when theyre a "dumb teen"
+fuck you
+
 if you want evidence just dm me @trannytroon in discord
