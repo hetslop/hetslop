@@ -6,4 +6,6 @@ ex friends dni, im not comfortable with having reunion with a groomer and people
 
 "you're overreacting" is a 22 year old streaming porn to 16 year old they know since they were 13 an overreaction lmao. i want to ask you how it feels like being groomed
 
-also stop bringing up about the regiment to me, im not comfortable with the regiment anymore especially considering in the past 2020 i was being placed in nsfw chat when I was 13 and the leader was an adult
+also stop bringing up about the regiment to me, im not comfortable with the regiment anymore especially considering in the past 2020 i was being placed in nsfw chat when I was 13 and the leader was an adult. i don't like adults who constantly vent to minors
+
+if you want evidence just dm me @trannytroon in discord
