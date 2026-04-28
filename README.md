@@ -8,7 +8,10 @@ ex friends dni, im not comfortable with having reunion with a groomer and people
 
 also stop bringing up about the regiment to me, im not comfortable with the regiment anymore especially considering in the past 2020 i was being placed in nsfw chat when I was 13 and the leader was an adult. i don't like adults who constantly vent to minors
 
-not to victimise myself but ive been treated unfairly as a teen being told by many adults i am lacking empathy + having mixed feelings because i have poor emotional regulation. but ohhh let me let a groomer in my friend group and not hold them accountable n saying its years ago when theyre a "dumb teen"
-fuck you
+dni: nuzi fans. canon doesn’t matter to me, uzi is a high schooler and n reads much older (pod arrived when uzi was born, disassembly drones are clearly pre-existing), so the age gap makes me uncomfortable.
 
-if you want evidence just dm me @trannytroon in discord
+dni if you do nsfw of teen characters either! even they're legal age like 18 or 19, they're still transitioning to adulthood.
+
+don’t use “mental age” arguments to justify it.
+
+also uncomfortable supporting glitch if there are still unresolved issues with people involved in the cast (groomer / racist)
