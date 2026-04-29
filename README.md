@@ -16,4 +16,4 @@ don’t use “mental age” arguments to justify it
 
 also uncomfortable supporting glitch if there are still unresolved issues with people involved in the cast (groomer / racist)
 
-dni toxichero / shellvision shippers, it just make me uncomfortable and how the player is often perceived as a "man" than canon nonbinary character
+dni toxichero / jewelrybox shippers, it just make me uncomfortable and how the player is often perceived as a "man" than canon nonbinary character. jewelry box is in dni because i hate interracial white x black ships im sorr unless u make glisten poc
