@@ -12,6 +12,8 @@ dni: nuzi fans. canon doesn’t matter to me, uzi is a high schooler and n reads
 
 dni if you do nsfw of teen characters either! even they're legal age like 18 or 19, they're still transitioning to adulthood.
 
-don’t use “mental age” arguments to justify it.
+don’t use “mental age” arguments to justify it
 
 also uncomfortable supporting glitch if there are still unresolved issues with people involved in the cast (groomer / racist)
+
+dni toxichero / shellvision shippers, it just make me uncomfortable and how the player is often perceived as a "man" than canon nonbinary character
