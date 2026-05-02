@@ -6,8 +6,6 @@ ex friends dni, im not comfortable with having reunion with a groomer and people
 
 "you're overreacting" is a 22 year old streaming porn to 16 year old they know since they were 13 an overreaction lmao. i want to ask you how it feels like being groomed
 
-dni: nuzi fans. canon doesn’t matter to me, uzi is a high schooler and n reads much older (pod arrived when uzi was born, disassembly drones are clearly pre-existing), so the age gap makes me uncomfortable.
-
 dni if you do nsfw of teen characters either! even they're legal age like 18 or 19, they're still transitioning to adulthood.
 
 don’t use “mental age” arguments to justify it
