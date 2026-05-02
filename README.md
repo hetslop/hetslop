@@ -4,6 +4,8 @@ my dni is just don't be weird and bigoted
 
 ex n old friends are on thin ice when interacting, id mostly treat you as a mutual but please keep in mind im not looking for any friends and im very avoidant 
 
+while i am practicing forgiveness, i will not interact to those who have association to ex who have harmed
+
 dni if you do nsfw of teen characters either! even they're legal age like 18 or 19, they're still transitioning to adulthood.
 
 also uncomfortable supporting glitch if there are still unresolved issues with people involved in the cast (groomer / racist)
