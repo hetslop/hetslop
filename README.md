@@ -2,9 +2,7 @@ Hot t4t straight sex
 
 my dni is just don't be weird and bigoted
 
-ex friends dni, im not comfortable with having reunion with a groomer and people who "forgave" their actions cause it was years ago when theyre 17 and the victims were 9-10
-
-"you're overreacting" is a 22 year old streaming porn to 16 year old they know since they were 13 an overreaction lmao. i want to ask you how it feels like being groomed
+ex n old friends are on thin ice when interacting, id mostly treat you as a mutual but please keep in mind im not looking for any friends and im very avoidant 
 
 dni if you do nsfw of teen characters either! even they're legal age like 18 or 19, they're still transitioning to adulthood.
 
