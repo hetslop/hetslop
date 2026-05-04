@@ -2,7 +2,8 @@ Hot t4t straight sex
 
 my dni is just don't be weird and bigoted
 
-ex n old friends are on thin ice when interacting, id mostly treat you as a mutual but please keep in mind im not looking for any friends and im very avoidant 
+ex n old friends are ok when interacting, id mostly treat you as a mutual but please keep in mind im not looking for any friends and im very avoidant
+not an insult, i generally do not have any interest in having friends
 
 while i am practicing forgiveness, i will not interact to those who have association to ex who have harmed
 
