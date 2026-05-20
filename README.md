@@ -11,5 +11,5 @@ while i am practicing forgiveness, i will not interact to those who have associa
 dni if you do nsfw of teen characters either! even they're legal age like 18 or 19, they're still transitioning to adulthood.
 
 byf:
-i am an addict, ive tried psychedelics before. im still addicted to smoking or anything that harms myself
+i am an addict, ive tried psychedelics before. im still addicted to smoking or anything that harms myself +
 no i am not gonna recover its my source of self medication
