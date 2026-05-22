@@ -1,6 +1,6 @@
 Hot t4t straight sex
 
-my dni is just don't be weird and bigoted
+my dni is just don't be weird and bigoted (if youre darkship just dont mention ur fantasies to me at all, or just generally dont be sexual to me)
 
 ex n old friends are ok when interacting, id mostly treat you as a mutual but please keep in mind im not looking for any friends and im very avoidant
 
