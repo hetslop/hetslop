@@ -5,3 +5,5 @@ twitter post:
 https://x.com/i/status/2078345177379610845
 
 im still gathering much evidence so uh
+
+hello i just so happen to be a guy thats learning and trying to educate myself more into widespread issues
