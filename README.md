@@ -4,6 +4,10 @@ https://docs.google.com/document/d/1_vhwJ0TohEi4qZtICzybVfYLOyydODhGkltQ1JivKAE/
 twitter post:
 https://x.com/i/status/2078345177379610845
 
-im still gathering much evidence so uh
+note : im still educating myself so i might make mistakes in my knowledge
 
-please read links
+Since when? You don't even want to elaborate further, this proves you that you're irresponsible of any issues aswell.
+Are you going to brought up minor card bullshit all over again? You're already mature. Why brought up old problems again? My issues here is done with you.
+If you don't like me then dont message me, and move on.
+This obviously shows how obsessive you are towards me on making my downfall. /copypasta
+
