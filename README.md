@@ -7,3 +7,5 @@ https://x.com/i/status/2078345177379610845
 also, please read this. no one has directly called me out, but i still believe that recognizing my mistakes and addressing them on my own is an important step toward changing
 
 https://accountabilitychange.straw.page/
+
+also read document, it explains that i lied about my age being older sorry💔
