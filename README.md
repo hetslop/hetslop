@@ -6,3 +6,5 @@ https://x.com/i/status/2090133389135511831
 
 kofi: https://ko-fi.com/t4t
 tng: 160671012089
+
+afab trans fem or amab trans masculine dni pls oh my god
