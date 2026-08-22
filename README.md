@@ -11,3 +11,4 @@ kofi: https://ko-fi.com/t4t
 tng: 160671012089
 
 afab trans woman/fem or amab trans man/masc dni pls oh my god
+this includes anyone , please use tme/tma instead if youre intersex!
