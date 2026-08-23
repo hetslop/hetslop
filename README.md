@@ -14,3 +14,5 @@ afab trans woman/fem or amab trans man/masc dni pls oh my god
 this includes anyone , please use tme/tma instead if youre intersex
 
 system with perisex afab host with transfem alter dni, same goes for other
+
+afab tfem / amab tmasc identity is harmful: https://pastebin.com/93m6hVa3
