@@ -1,3 +1,3 @@
-dni: people who weaponise their afab, tucutes, anti-hrt
+dni: people who weaponise their afab, tucutes
 
-not a truscum but i hate non dysphoric
+not a transmed, but pro diy. i just hate non dysphoric
