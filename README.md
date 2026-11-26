@@ -1,4 +1,4 @@
-dni: people who weaponise their afab, tucutes, believe in transandrophobia, tmra 
+dni: people who weaponise their afab, tucutes, believe in transandrophobia/transmisandry than anti transmasculinity, tmra, theyfab
 
 not a transmed, but pro diy. i just hate non dysphoric
 
